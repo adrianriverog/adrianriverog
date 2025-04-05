@@ -7,4 +7,3 @@
 - 🌱 I’m currently learning coding and game art
 - 🤔 I’m looking for help with mostly coding
 - 😄 Pronouns: he/him
--->
